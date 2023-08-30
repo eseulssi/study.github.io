@@ -1,1 +1,1 @@
-# study.github.io
+# https://eseulssi.github.io/study.github.io/
